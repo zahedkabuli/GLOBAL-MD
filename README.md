@@ -1,4 +1,3 @@
-### FIXED & UPDATED
 
 --------
 
